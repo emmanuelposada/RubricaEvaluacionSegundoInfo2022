@@ -1,1 +1,0 @@
-# RubricaEvaluacionSegundoInfo2022
